@@ -1,4 +1,4 @@
-# #-----------------< Certificado de Cursos Realizados >----------------#
+# #------< Certificado de Cursos Realizados >---------#
 
 #  Nome: ALEXANDRE PEREIRA MOUTINHO  
 #  Cotatos: ☎: (41) 9 983372-12 | ✉: alexandre.moutinho@outlook.com.br ou cel.moutinho@gmail.com 
